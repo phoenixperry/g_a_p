@@ -28,6 +28,6 @@ That said, I want to get serious again. The list I made is open. There are trans
 
 That said, I work about 80 hours a week between the CLF and Goldsmiths before we even get to my own games and writing. I’m in the middle of a book and my time is very, very limited. That said, I’ll do what I can to answer when I can. 
 
-As a group. we should support this conversation. I’m just no longer in a position to lead this conversation because now I’m part of the story. Anything I say will come across as hurt feelings. That said, we should talk about internet mobbery going on in games. Developers like myself are exhausted. This just makes doing what we do harder, not easier. The conversation should advance. 
+As a group, we should support this conversation. I’m just no longer in a position to lead this conversation because now I’m part of the story. Anything I say will come across as hurt feelings. That said, we should talk about internet mobbery going on in games. Developers like myself are exhausted. This just makes doing what we do harder, not easier. The conversation should advance. 
 
 
